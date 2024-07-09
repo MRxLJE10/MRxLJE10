@@ -1,1 +1,1 @@
-![Python Essentials #1](https://www.credly.com/badges/3ca42170-8c6d-40ce-b9fd-5a0baae8d12c/public_url)
+![Python Essentials #1](https://github.com/MRxLJE10/MRxLJE10/assets/166876955/15cb968c-7450-4f8c-b193-d537785b3190)
